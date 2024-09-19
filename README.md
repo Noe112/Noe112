@@ -2,7 +2,7 @@
 - 👀 I’m interested in fishing
 - 🌱 I’m currently learning géosciences
 - 💞️ I’m looking to collaborate on study
-- 📫 How to reach me ...
+- 📫 How to reach me: talk to me
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i'm sympa
 
